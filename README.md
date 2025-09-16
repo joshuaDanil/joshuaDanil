@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joshuaDanil
-- 👀 I’m interested in music/musicproduction, PCs, and Linux
+- 👀 I’m interested in music/music production, PCs, and Linux
 - 🌱 I’m currently learning all the ins and outs of Linux and GitHub
 - 📫 Email me at joshuadanilb@gmail.com or discord me at 'thereallynooby'
 - 😄 Pronouns: **Him**
